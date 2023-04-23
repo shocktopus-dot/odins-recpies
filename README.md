@@ -1,1 +1,1 @@
-# odins-rescpies
+# odins-recpies
